@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on creative Projects
 - 📫 How to reach me farrjanafrhn22@gmail.com
-- 😄 Pronouns: fathiJana
+- 😄 Pronouns: fathimaFarjana
 - ⚡ Fun fact: ...
 
 <!---
